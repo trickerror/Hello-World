@@ -3,4 +3,5 @@ zer00n3
 
 Yo! 
 
-This is my edited thingy that shows I've committed. Thanks alot to my buddy who visited a few months ago to get this ball rolling. He is a treat. Nom NOM NOM NOM.
+This is my edited thingy that shows I've committed. Someone is attempting to murder me. Nom NOM NOM NOM.
+Lack sleep whoah.
